@@ -1,0 +1,1 @@
+Obersten is Roald Amundsen's lead dog in the South Pole Expedition
